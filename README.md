@@ -6,7 +6,7 @@
 <p align="center">═╪ ݂۫ׄ⠀ 　etho⸝ martlet　 ' 　she◞ it◞ any 　⏔⏔</p>
 <p align="center">𓏲　✿　　txt txt　　⿻　　txt　　| ͜͝ | ͜͝ |⠀</p>
 
-<details><summary><p align="center">𔔀⟢⠀⠀before⠀you⠀interact⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
+<details><summary><p align="center">𔔀⟢⠀⠀before⠀you⠀interact⠀₍　click to view! ₎⠀⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
 
 <p align="center">  text text text</p>
 
