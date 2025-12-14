@@ -2,4 +2,7 @@
        
 　　　　　　　<img width="626" height="378" alt="IMG_1818" src="https://github.com/user-attachments/assets/fd31203b-8603-4f33-be25-3403c96d1873" />
 
-       <center>𓈒═╪ ݂۫ׄ⠀ etho⸝ martlet ![++]()</center>
+      <p align="center">
+  ═╪ ݂۫ׄ⠀ etho⸝ martlet ![++]()
+</p>
+
