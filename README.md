@@ -6,11 +6,13 @@
 <p align="center">═╪ ݂۫ׄ⠀ 　etho⸝ martlet　 ' 　she◞ it◞ any 　⏔⏔</p>
 <p align="center">𓏲　✿　　txt txt　　⿻　　txt　　| ͜͝ | ͜͝ |⠀</p>
 
-<p align="center">
 <details>
-  <summary>𔔀⟢⠀⠀before⠀you⠀interact⠀ᴵܢ ۪۪ٜ❀⠀</summary>
 
-  text text text
+<p align="center">  <summary>𔔀⟢⠀⠀before⠀you⠀interact⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
+
+
+<p align="center">  text text text</p>
+
 
 </details>
-</p>
+
