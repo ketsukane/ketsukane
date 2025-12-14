@@ -4,6 +4,13 @@
 </p>
 
 <p align="center">═╪ ݂۫ׄ⠀ 　etho⸝ martlet　 ' 　she◞ it◞ any 　⏔⏔</p>
+<p align="center">𓏲　✿　　txt txt　　⿻　　txt　　| ͜͝ | ͜͝ |⠀</p>
 
+<p align="center">
+<details>
+  <summary>𔔀⟢⠀⠀before⠀you⠀interact⠀ᴵܢ ۪۪ٜ❀⠀</summary>
 
+  text text text
 
+</details>
+</p>
