@@ -3,8 +3,8 @@
 <img width="626" height="378" alt="IMG_1818" src="https://github.com/user-attachments/assets/fd31203b-8603-4f33-be25-3403c96d1873" />
 </p>
 
-<p align="center">═╪ ݂۫ׄ⠀ 　etho⸝ martlet　 ' 　she◞ it◞ any 　⏔⏔</p>
-<p align="center">𓏲　✿　　level 15!　intj　5w6　⿻　choleric sanguine　　| ͜͝ | ͜͝ |⠀</p>
+<p align="center">═╪ ݂۫ׄ⠀ 　etho⸝ martlet　 ' 　she◞ it◞ any 　neutral good　　⏔⏔</p>
+<p align="center">𓏲　✿　　level 15!　intj　5w6　⿻　choleric──sanguine　　| ͜͝ | ͜͝ |⠀</p>
 
 <details><summary><p align="center">𔔀⟢⠀⠀before⠀you⠀interact⠀₍　click to view! ₎⠀⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
 
