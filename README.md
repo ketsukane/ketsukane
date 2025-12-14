@@ -8,7 +8,13 @@
 
 <details><summary><p align="center">𔔀⟢⠀⠀before⠀you⠀interact⠀₍　click to view! ₎⠀⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
 
-<p align="center">  text text text</p>
-
+<p align="center">  heres some things that may be helpful to know before interacting with me:</p>
+<p align="center"> im usually very sociable, i love talking with *just* about anybody. with exceptions of course. (see dni)   </p>
+<p align="center"> but, genuinely, im very extroverted online. comfortable silence is appealing to me too though! please sit with me! ^_^   </p>
+<p align="center"> i like to make gifted rentrys/adjacent sites for my friends! i like to edit and id be happy to make one for you. just be patient and dont take advantage of this, please.   </p>
+<p align="center"> despite me being social most of the time when around others, i am offtab the majority of the time. please whisper me to grab my attention! <3   </p>
+  <p align="center"> i get quite
+  nervous about making good impressions, so i may be a bit withdrawn with meeting new people. if i get a bit quiet/blunt at times i promise im not ignoring you being bothered by you or anything!</p>
+  <p align="center"> on another note, i hide and block people on here freely. if someones affecting me in a way i dont see fit ill hide em. its usually for a decent reason but sometimes i just do it to cleae up space on my screen. if i hide a friend of yours or someone who wishes to talk to me n i hid them for no reason let me know! </p>
 </details>
 
