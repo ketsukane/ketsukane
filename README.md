@@ -7,8 +7,7 @@
 <p align="center">𓏲　✿　　txt txt　　⿻　　txt　　| ͜͝ | ͜͝ |⠀</p>
 
 <details>
-
-<p align="center">  <summary>𔔀⟢⠀⠀before⠀you⠀interact⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
+  <summary><p align="center">𔔀⟢⠀⠀before⠀you⠀interact⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
 
 
 <p align="center">  text text text</p>
