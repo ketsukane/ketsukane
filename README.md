@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">═╪ ݂۫ׄ⠀ 　etho⸝ martlet　 ' 　she◞ it◞ any 　⏔⏔</p>
-<p align="center">𓏲　✿　　txt txt　　⿻　　txt　　| ͜͝ | ͜͝ |⠀</p>
+<p align="center">𓏲　✿　　15 intj　5w6　⿻　　choleric sanguine　　| ͜͝ | ͜͝ |⠀</p>
 
 <details><summary><p align="center">𔔀⟢⠀⠀before⠀you⠀interact⠀₍　click to view! ₎⠀⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
 
