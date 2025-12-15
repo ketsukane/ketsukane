@@ -1,3 +1,5 @@
+<p align="center">![](https://komarev.com/ghpvc/?username=ketsukane&color=dc143c)</p>
+
 <p align="center">
 <img width="626" height="378" alt="IMG_1815" src="https://github.com/user-attachments/assets/b5df3510-73f9-4492-89d3-e77e40dd93ff" />
 <img width="626" height="378" alt="IMG_1818" src="https://github.com/user-attachments/assets/fd31203b-8603-4f33-be25-3403c96d1873" />
@@ -15,6 +17,6 @@
 <p align="center"> despite me being social most of the time when around others, i am offtab the majority of the time. please whisper me to grab my attention! <3   </p>
   <p align="center"> i get quite
   nervous about making good impressions, so i may be a bit withdrawn with meeting new people. if i get a bit quiet/blunt at times i promise im not ignoring you being bothered by you or anything!</p>
-  <p align="center"> on another note, i hide and block people on here freely. if someones affecting me in a way i dont see fit ill hide em. its usually for a decent reason but sometimes i just do it to cleae up space on my screen. if i hide a friend of yours or someone who wishes to talk to me n i hid them for no reason let me know! </p>
+  <p align="center"> on another note, i hide and block people on here freely. if someones affecting me in a way i dont see fit ill hide em. its usually for a decent reason but sometimes i just do it to clear up space on my screen. if i hide a friend of yours or someone who wishes to talk to me n i hid them for no reason let me know! </p>
 </details>
 
