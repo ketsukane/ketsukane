@@ -1,4 +1,4 @@
-<p align="center">![](https://komarev.com/ghpvc/?username=ketsukane&color=dc143c)</p>
+<p align="center"> text </p>
 
 <p align="center">
 <img width="626" height="378" alt="IMG_1815" src="https://github.com/user-attachments/assets/b5df3510-73f9-4492-89d3-e77e40dd93ff" />
