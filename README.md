@@ -18,13 +18,16 @@
   <p align="center"> i get quite
   nervous about making good impressions, so i may be a bit withdrawn with meeting new people. if i get a bit quiet/blunt at times i promise im not ignoring you being bothered by you or anything!</p>
   <p align="center"> on another note, i hide and block people on here freely. if someones affecting me in a way i dont see fit ill hide em. its usually for a decent reason but sometimes i just do it to clear up space on my screen. if i hide a friend of yours or someone who wishes to talk to me n i hid them for no reason let me know! </p>
-  <p align="center"> bonus input:</p>
-  <p align="center">03:21 PM[martlet] whst do ppl even need to know about me bruh </p>
- <p align="center">03:21 PM[🌲 making one of many pccs] that ur gay and lgbt and american and ummmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm </p>
- <p align="center">03:21 PM[🌲 making one of many pccs] anticishet </p>
-
+ <p align="center"> Undertale yellow is like my favorite thing ever... PLEASEEEE be my friend if you enjoy it even just a tad.... and if you like undertale please look into it!! its so awesome trust me! :)!! </p>
+ <p align="center"> Thats pretty much it! Just be patient and kind and we'll get along very well! </p>
   
 </details>
 
-
-
+<details><summary><p align="center">𔔀⟢⠀⠀do not interact⠀₍　click to view! ₎⠀⠀ᴵܢ ۪۪ٜ❀⠀</summary></p>
+  
+ <p align="center"> Do not interact with me if you :  </p>
+   <p align="center"> - generally fit into basic dni criteria </p>
+      <p align="center"> - are a proshipper/darkshipper or someone who supports it </p>
+      
+         <p align="center"> thats pretty much it! reminder, i block freely, its usually more personal if its an actual issue/reason i dont wanna interact. </p>
+</details>
