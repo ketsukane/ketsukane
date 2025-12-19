@@ -18,8 +18,8 @@
   <p align="center"> i get quite
   nervous about making good impressions, so i may be a bit withdrawn with meeting new people. if i get a bit quiet/blunt at times i promise im not ignoring you being bothered by you or anything!</p>
   <p align="center"> on another note, i hide and block people on here freely. if someones affecting me in a way i dont see fit ill hide em. its usually for a decent reason but sometimes i just do it to clear up space on my screen. if i hide a friend of yours or someone who wishes to talk to me n i hid them for no reason let me know! </p>
- <p align="center"> Undertale yellow is like my favorite thing ever... PLEASEEEE be my friend if you enjoy it even just a tad.... and if you like undertale please look into it!! its so awesome trust me! :)!! </p>
-   <p align="center"> I also am a yumeshipper, i selfship w/ ceroba ketsukane! (I am sharing with her, yume doubles feel free to chat with me ^_^) I have a few others, but im sharing for all. Shes just my main yume! Feel free to ask about the others!</p>
+ <p align="center"> Undertale yellow is like my favorite thing ever... PLEASEEEE be my friend if you enjoy it even just a tad.... and if you like undertale please look into it!! its so so SO awesome trust me! :)!! </p>
+   <p align="center"> I also am a yumeshipper, i selfship w/ ceroba ketsukane! (I am sharing with her, yume doubles feel free to chat with me ^_^) I have a few others, but im sharing for all. Shes just my main f/o! Feel free to ask about the others!</p>
  <p align="center"> Thats pretty much it! Just be patient and kind and we'll get along very well! </p>
   
 </details>
