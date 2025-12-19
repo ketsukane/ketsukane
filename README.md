@@ -29,5 +29,5 @@
    <p align="center"> - generally fit into basic dni criteria </p>
       <p align="center"> - are a proshipper/darkshipper or someone who supports it </p>
       
-         <p align="center"> thats pretty much it! reminder, i block freely, its usually more personal if its an actual issue/reason i dont wanna interact. </p>
+<p align="center"> thats pretty much it! reminder, i block freely, its usually more personal if its an actual issue/reason i dont wanna interact. </p>
 </details>
